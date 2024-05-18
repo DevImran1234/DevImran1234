@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **devimran733@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/DevImran1234](https://github.com/DevImran1234)
+- 📄 Know about my experiences (https://docs.google.com/document/d/1crtg0hnpaHEKtaNi66U3EULoLrIjflxI/edit)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
